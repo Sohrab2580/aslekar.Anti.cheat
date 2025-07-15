@@ -1,1 +1,0 @@
-# aslekar.Anti.cheat
